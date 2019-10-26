@@ -8,3 +8,5 @@
 - 10/09/2003 Ian was born
 - 31/07/2016 Moved to Portland, OR
 - 07/2017 Started working at AWS Elemental
+- 07/2018 Bought our first home
+- 10/2018 Planted 2 apple trees, a plum tree, and a pear tree in our yard
