@@ -10,3 +10,4 @@
 - 07/2017 Started working at AWS Elemental
 - 07/2018 Bought our first home
 - 10/2018 Planted 2 apple trees, a plum tree, and a pear tree in our yard
+- 03/2020 Covid quarantine time. WFH full time. Grateful for what we have.
